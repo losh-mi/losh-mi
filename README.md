@@ -1,2 +1,3 @@
-Hey it's me loshMi :p \n
+Hey it's me loshMi :p
+
 Pronouns: Tomb/Raider
